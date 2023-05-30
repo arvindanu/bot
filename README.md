@@ -1,3 +1,0 @@
-# sampleGiT
-dcsdvsdv
-ggfdgdfg
